@@ -17,3 +17,5 @@ Here are some ideas to get you started:
 hlw can i make them naked explicit 
 naked
 
+no hair
+preteen
